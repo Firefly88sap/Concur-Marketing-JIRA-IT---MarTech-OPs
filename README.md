@@ -1,0 +1,1 @@
+This info provides visibility into all the work that we are partnering with Concur IT to support Marketing function. It transformed blackbox into visibility at scale - enabling Concur Marketing forward planning and prioritizing projects that drive impactful business results.
